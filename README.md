@@ -1,6 +1,2 @@
 # for_test
-111
-xjklsdakjf
-saldkfjlas
-ladjkflkas
-asldjkf
+222.2.2.2.。2.2.
